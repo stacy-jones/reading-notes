@@ -13,5 +13,3 @@ Sending love and light from Stacy Jones, your fellow cohort! You can reach me at
 
 
 [Stacy Jones](https://github.com/stacy-jones)
-
-
