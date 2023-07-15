@@ -12,6 +12,6 @@
 Sending love and light from Stacy Jones, your fellow cohort! You can reach me at petittours@gmail.com
 
 
-[Stacy Jones] (https://github.com/stacy-jones)
+[Stacy Jones](https://github.com/stacy-jones/reading-notes)
 
 
